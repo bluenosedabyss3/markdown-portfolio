@@ -1,1 +1,3 @@
-Replace this with a list of your favorite things.
+1. rdr
+2. rdr 2 
+3. sekiro
